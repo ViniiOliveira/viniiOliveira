@@ -5,7 +5,7 @@
 
 Depois de anos no mercado de trabalho, encontrei minha paixão na TI
 
- :computer:  &nbsp; Sou HelpDesk na empresa **Moovin Plataforma de E-comerce**
+ :computer:  &nbsp; HelpDesk na empresa **Moovin Plataforma de E-comerce**
  <br/> 📚 &nbsp; Buscando aprender cada dia mais sobre programação 
  <br/> :blush: &nbsp; Sou pró-ativo e tendo sempre absorver o máximo de conhecimento
  <br/> 🎮  &nbsp; Amo tecnologia, games e todo esse universo.
